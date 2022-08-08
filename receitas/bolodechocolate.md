@@ -1,6 +1,8 @@
 #       bolo de cenoura
 
-* 3 cenouras médias.,.
+
+
+* 3 cenouras médias
 
 * 4 ovos
 
